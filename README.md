@@ -17,3 +17,8 @@ Roll no 1893207
 To be most successful in life,always forget the problems that you have faced in your life. 
 But never forget the lessons that those problems taught you.
 by Buddhism
+
+NAME DEEKSHA RANI 
+STUDENT ID-1893173
+
+WITHOUT YOUR INVOLEMENT YOU CANNOT SUCCEED. WITH YOUR INVOLEMENT YOU CANNOT FAIL-APJ ABDUL KALAM
