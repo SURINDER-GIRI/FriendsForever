@@ -10,3 +10,10 @@ Name Gurjeet singh
 Student: 1892849
 Always be yourself, express yourself, have faith in yourself, do not go out and look for a successful personality and duplicate it.
  Bruce Lee
+
+Name Satwinder Singh 
+Roll no 1893207	
+
+To be most successful in life,always forget the problems that you have faced in your life. 
+But never forget the lessons that those problems taught you.
+by Buddhism
